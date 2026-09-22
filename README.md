@@ -34,6 +34,6 @@ Web3 / Crypto Communities
 I'm looking for opportunities in Web3 Community Management, Community Moderation, Community Support, and AI-related roles.
 🔗 Links
 GitHub: https://github.com/PecintaMajor
-LinkedIn: Add your LinkedIn URL
+LinkedIn: [Add your LinkedIn URL](https://www.linkedin.com/in/mohammad-hakiki-9a97922b3)
 📫 Contact
 Feel free to reach out for Web3 community, moderation, or AI-related opportunities.
